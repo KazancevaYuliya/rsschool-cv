@@ -1,1 +1,1 @@
-# rsschool-cv
+https://KazancevaYuliya.github.io/rsschool-cv/cv
